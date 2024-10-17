@@ -36,6 +36,3 @@
 # [a_roria (chico edit)](https://mega.nz/file/lIZFjQrJ#B21osupERVJWx-5weX1qrS_tkpXsRCiVpK2EUeE_TGs)   
 <img src="roria.jpg">
 <br>
-
-
-made and updated by chicoyeah

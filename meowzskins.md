@@ -2,7 +2,7 @@
 <br>
 
 # [marianczello](https://drive.google.com/file/d/1sSNtaZL1Oiop1kUZO2wkSlIMnkdIQKm9/view?usp=sharing)   
-<img src="ikanyaichico.jpg">
+<img src="marianczello.jpg">
 <br>
 
 # [Ikanyai chico edit](https://mega.nz/folder/dBABXbJA#lAj29ecC2Bv4ZU12Bvafcg)   
